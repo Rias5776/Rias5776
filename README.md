@@ -1,3 +1,4 @@
- 👋 Hi, I’m Gaurav !
-  are ya in a cage? no ,you're a cage!
+ 👋 Hi, Gaurav desu!
+  are you in a cage... no? 
+  you're the cage!
   be free
